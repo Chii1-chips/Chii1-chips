@@ -17,7 +17,7 @@
 
 🐱 (2) ( · ❛ ֊ ❛) ;; Here's another thing I'm okay with! Interacting with me. I'm pretty open to chat for any means, but I'm quite shy and can get nervous easily if I don't known someone well. So, please, understand that. Though, I'm not the best at comforting or doing advise during times of venting, but i'll always try my best. BUT, You can only vent to me if you're a close friend of mine, or an IRL friend of mine. I generally get a bit uncomfortable when a random stranger vents to me, because- I just don't know them.
 
-🐱 (3) (☞ ͡° ͜ʖ ͡°)☞ ;; Of course, for ships, it's totally cool! I don't ship too many characters, but you can always ask. just as long as your a friend of mine! Close friends are always allowed as so, but just ask b4 doing so- and same goes w/ matching skins in PT. Just ask me, but as long as your a friend of mine.
+🐱 (3) (☞ ͡° ͜ʖ ͡°)☞ ;; Of course, for ships, it's totally cool! I don't ship too many characters, but you can always ask. just as long as you're a friend of mine! Close friends are always allowed as so, but just ask b4 doing so- and same goes w/ matching skins in PT. Just ask me, but as long as your a friend of mine.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
@@ -38,8 +38,8 @@
 😻 (˶ˆᗜˆ˵) ;; And here are some ships I like, in games!
 - 𓆝 ⋆｡𖦹°‧ ~ ;; Dyle x Finn  [ Dandy's World ]
 - ⋆｡˚ ❀🪞❀˚ ｡⋆ ~ ;; Glisten x Boxten [ Dandy's World ]
-- ༄˖°.🍋.ೃ࿔*:･ ~ ;; Lemon Cookie x  Big Shot Spamton (This is a crackship, not really that serious of a ship I like a little hehe.)
-- . ₊˚ ☎︎₊˚✧ ~ ;;  007n7 x Spamton (This is also another crackship, not a serious one. Just for the sillies, but i like it a bit.)
+- ༄˖°.🍋.ೃ࿔*:･ ~ ;; Lemon Cookie x  Big Shot Spamton (CROB + Deltarune || (This is a crackship, not really that serious of a ship I like a little hehe.)
+- . ₊˚ ☎︎₊˚✧ ~ ;;  007n7 x Spamton (Forsaken verison + Deltarune) || (This is also another crackship, not a serious one. Just for the sillies, but i like it a bit.)
 
 (╭ರ_•́) - ;; Also, if you don't know the term of what a "crackship" is, it's like two characters from completely different fandoms paired together, unlikely to even LOVE each other at all in two different COMPLETE fandoms.. It can just be shortened to- "I wanna ship it because I find it funny". Or it can just be characters who met just ever so briefly. Kinda just like for the giggles.
 

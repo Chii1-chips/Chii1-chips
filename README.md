@@ -43,4 +43,7 @@
 
 (╭ರ_•́) - ;; Also, if you don't know the term of what a "crackship" is, it's like two characters from completely different fandoms paired together, unlikely to even LOVE each other at all in two different COMPLETE fandoms.. It can just be shortened to- "I wanna ship it because I find it funny". Or it can just be characters who met just ever so briefly. Kinda just like for the giggles.
 
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 # °‧ 𓆝 𓆟 𓆞 ·｡ WIP. Uh. Yeah. this is an on-going wip. (˶•𐃷•˶)... runs away and scours to finish it someday else °‧ 𓆝 𓆟 𓆞 ·｡
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°

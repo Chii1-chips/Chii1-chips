@@ -1,25 +1,17 @@
-hello. I am uh Chii, but I can go by any cosplay that I do! OR any of my socials. I love to do art, and such!
+#  (˶ᵔᗜᵔ˶)ﾉﾞ !! hello . Hi. This is the starting introduction. 
 
-I go by they/them pronouns.. Uh, I dont really know what else to put for the meantime, so.. HERE ARE MY SOCIALS!!!1
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡
 
-Ibispaint Page: https://ibispaint.com/artist4/5138878409038871/?type=illust&sort=new
+😽  ── .✦ ;; I am Chii, but you can basically call me anything! Nicknames, or any cosplays I wear in games, especially Pony Town. I have been playing Pony Town since around 2021-2022 (Somewhere between that range of years). This will kind of just be a big yap session because I have alot to share about myself! :]
 
-Youtube channel (PJSK related content, but can vary): https://www.youtube.com/@Chii-burger-321B
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡
+# ദ്ദി◝ ⩊ ◜.ᐟ ;; Things I'm OKAY with, and things i'm not okay with (Important part). (≖_≖ )
 
-Strawpage, more about me, more cooler stuff: https://literallyalotofthingsaboutme.straw.page/
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡
 
-🐟 ⭒ gup gup fish noises
+😾 (⇀‸↼‶) ;; So.. You read that correctly. Firstly. PLEASE DO NOT, and when i mean it, DO NOT CALL ME she/her pronouns! I only ACCEPT these pronouns if I'm ROLEPLAYING as a character that uses them. I get extremely uncomfortable if used in any other situation. PLEASE only call me by they/them OR /he/him pronouns. I appericate if you'd respect this. It's fine if you don't know this at first, (When we first meet). 
 
-this is kinda stale like the bread on the floor i wanted to eat but was restraine-
+😺  (˶ˆᗜˆ˵) ;; Though, here are some
 
-...
 
-Okay. Anyway.
-
-My favorite characters are: Shedletsky (Forsaken) , Aloha (splatoon manga series), Lemon Cookie (CROB) and butter pretzel cookie (also CROB). I ALSO LOVE EVERY SINGLE CHARACTER FROM SPLATOON BUT SHELDON. if ykyk. I also love kagemine len and kagemine rin!!! :3  🍌
-
-I dont really play roblox that often, nor do i play forsaken and stuff since ive MOVED ONTO MY SHAYLA SPLATOONNNNNNNNNNNN ok sighs i- i i'll shut up now..
-
-But rememberrrr!!:
-
-# "Stay fresh, and stay off the hook!" /ref 🦑
+# WIP. Uh. Yeah. this is a wip. (˶•𐃷•˶)... runs away and scours to finish it someday else

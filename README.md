@@ -34,6 +34,9 @@
 - Kagemine Len and Rin!
 - Kasane Teto
 - Akita Neru
+- Spaghetti (without meatballs)
+- tacos
+- fried chimcken :p
 
 😻 (˶ˆᗜˆ˵) ;; And here are some ships I like, in games!
 - 𓆝 ⋆｡𖦹°‧ ~ ;; Dyle x Finn  [ Dandy's World ]
@@ -44,6 +47,26 @@
 (╭ರ_•́) - ;; Also, if you don't know the term of what a "crackship" is, it's like two characters from completely different fandoms paired together, unlikely to even LOVE each other at all in two different COMPLETE fandoms.. It can just be shortened to- "I wanna ship it because I find it funny". Or it can just be characters who met just ever so briefly. Kinda just like for the giggles.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
-# °‧ 𓆝 𓆟 𓆞 ·｡ WIP. Uh. Yeah. this is an on-going wip. (˶•𐃷•˶)... runs away and scours to finish it someday else °‧ 𓆝 𓆟 𓆞 ·｡
+# (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ ;; > Some other extra information  - ִֶָ𓂃 ࣪˖ ִֶָ🐈་༘࿐
+
+Anyway.
+- I am non-binary, but I also accept he/him pronouns! (๑ᵔ⤙ᵔ๑)
+- A slight dummy at jokes and stuff. My humor is just being stupid af and dry-like humor. I can be slightly sarcastic, because I can take things that are just metaphorically seriously. (⸝⸝๑﹏๑⸝⸝)
+- I can be a slight freak if you get to know me really well, so if that makes you uncomfortable, don't be afraid to say it. I'm always sorry if I make you uncomfortable! Sometimes I can't get these on the first try.
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+# A cool person! Go check em out .ᐟ.ᐟ  (,,¬﹏¬,,) ⊹ ࣪ ˖
+
+-- Cosmo (MY WIFE 👅) Their YT channel ; https://www.youtube.com/channel/UCYExIYmRPAfrahasrV_jT3w
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+
+# Now we're reaching the end of this Github page! This is of course, an on-going WIP, but this is all the info I have to share. 
+
+# Remember-
+
+# ⋅˚₊‧ ଳ ‧₊˚ ⋅ ;; Stay fresh, and stay off the Hook! /ref! ᔦꙬᔨ
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°

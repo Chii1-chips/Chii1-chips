@@ -51,17 +51,24 @@
 
 Anyway.
 - I am non-binary, but I also accept he/him pronouns! (๑ᵔ⤙ᵔ๑)
-- A slight dummy at jokes and stuff. My humor is just being stupid af and dry-like humor. I can be slightly sarcastic, because I can take things that are just metaphorically seriously. (⸝⸝๑﹏๑⸝⸝)
+- A slight dummy at jokes and stuff. My humor is just being stupid af and dry-like humor. I can be slightly sarcastic, because I can take things that are just metaphorically more seriously than they were meant to be. I apologize in advance! (⸝⸝๑﹏๑⸝⸝)
 - I can be a slight freak if you get to know me really well, so if that makes you uncomfortable, don't be afraid to say it. I'm always sorry if I make you uncomfortable! Sometimes I can't get these on the first try.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
-# A cool person! Go check em out .ᐟ.ᐟ  (,,¬﹏¬,,) ⊹ ࣪ ˖
+# A cool person! Go check em out .ᐟ.ᐟ  ( ˶˘ ³˘(ˊᗜˋ*)!♡  ⊹ ࣪ ˖
 
 -- Cosmo (MY WIFE 👅) Their YT channel ; https://www.youtube.com/channel/UCYExIYmRPAfrahasrV_jT3w
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
+# My socials! 
+
+˙✧˖°📷 ༘ ⋆｡° (Youtube) (Mainly PJSK content) ✩♬ ₊˚. : https://www.youtube.com/@Chii-burger-321B
+
+୧ ‧₊˚ 🎨🖌୧ ‧₊˚ (Ibispaint) (Can range to fanart to OC art) : https://ibispaint.com/artist4/5138878409038871/?type=illust&sort=new
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
 # Now we're reaching the end of this Github page! This is of course, an on-going WIP, but this is all the info I have to share. 
 

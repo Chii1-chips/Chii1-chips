@@ -21,6 +21,17 @@
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
+# Some more important stuff.
+
+## 😿 - My mental isn't the greatest, nor will I always be in a happy mood all the time. of course, I can't always change my pfp, blah, blah, blah into something sad, so it'll just.. stay inactive. If I'm inactive for a super long time (like one-two-ish weeks) then i'm struggling heavy. I am a pretty regular online person. Sometimes, I will take breaks. I have been through alot of heavy things for myself. And, I hope you, stranger, or friend can understand this.
+## If I ever become snappy or angry, then please understand it's because of my mental state that is swishy (Mainly horrible but its getting a little better now). I don't mean anything when im angry or upset, because my emotions are spiked up to the max. if you ever come across this time, please just understand this fact. I apologize in advance.
+## PLEASE LEAVE ME ALONE DURING THESE TIMES. DURING THOSE TIMES, I WILL NOT RESPOND TO MESSAGES NOR ANYTHING AT ALL. I WILL MOST LIKELY BE OFFLINE HANDLING IT IN REAL LIFE.
+
+
+
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
 # ( ˶˘ ³˘)♡  ;; Things I like + ships I draw/like !
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 

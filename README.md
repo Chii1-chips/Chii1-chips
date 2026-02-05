@@ -11,7 +11,7 @@
 
 😾 (1) (⇀‸↼‶) ;; So.. You read that correctly. Firstly. PLEASE DO NOT, and when i mean it, DO NOT CALL ME she/her pronouns! I only ACCEPT these pronouns if I'm ROLEPLAYING as a character that uses them. I get extremely uncomfortable if used in any other situation. PLEASE only call me by they/them OR /he/him pronouns. I appericate if you'd respect this. It's fine if you don't know this at first, (When we first meet). 
 
-😾 (2) ( ˶°ㅁ°) !! ;; Also, please do not joke about su1c!de infront of me. As someone who has went through that heavily, I'd appericate if you talk about it PRIVATELY or in a serious manner. Please read the second half of the things I'm okay with to learn more about what I'm comfortable with during this.
+## 😾 (2) ( ˶°ㅁ°) !! ;; Also, please do not joke about su1c!de infront of me. As someone who has went through that heavily, I'd appericate if you talk about it PRIVATELY or in a serious manner. Please read the second half of the things I'm okay with to learn more about what I'm comfortable with during this.
 
 😺 (1) (˶ˆᗜˆ˵) ;; Though, here are some I am fine with as long with permission! C+H. As long as I have C+H in my name, you're free to do those things! But, please, if I don't have them in my name, then, ask. 
 
@@ -81,10 +81,12 @@ Anyway.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
-# Now we're reaching the end of this Github page! This is of course, an on-going WIP, but this is all the info I have to share. 
+# You have reached the end of this GITHUB page! Wow! claps hands..! Anyway, this is an on-going wip, so, it is updated when I remember I want to put something in it.. Like extra information or details I wanna put!
 
-# Remember-
+ ... And now..!
 
-# ⋅˚₊‧ ଳ ‧₊˚ ⋅ ;; Stay fresh, and stay off the Hook! /ref! ᔦꙬᔨ
+ Remember-
+
+# # ⋅˚₊‧ ଳ ‧₊˚ ⋅ ;; " Don't get cooked, and stay off the Hook! "  /ref! ᔦꙬᔨ
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°

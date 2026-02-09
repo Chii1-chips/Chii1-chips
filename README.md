@@ -2,7 +2,7 @@
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
-😽  ── .✦ ;; I am Chii, but you can basically call me anything! Nicknames, or any cosplays I wear in games, especially Pony Town. I have been playing Pony Town since around 2021-2022 (Somewhere between that range of years). This will kind of just be a big yap session because I have alot to share about myself! :]
+😽  ── .✦ ;; I am Chii, but you can basically call me anything! Nicknames, or any cosplays I wear in games, especially Pony Town. I have been playing Pony Town since around 2021-2022 (Somewhere between that range of years).
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 # ദ്ദി◝ ⩊ ◜.ᐟ ;; Things I'm OKAY with, and things i'm not okay with (Important part). (≖_≖ 
@@ -21,12 +21,25 @@
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
+# (EXTRA) 🙀 Nicknames Im okay with, and nicknames I'm NOT okay with! ;;
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+ - dude/girl (Yeah go ahead, i dont really care about this one haha :3)
+ - Baby boy/girl (Erm, no. Unless you're a really close friend of mine!)
+ - Any 'feminine' nicknames like wife... (NO. Huge NO. Unless you're my CLOSE friend.)
+ - Any cosplay names (Unless I'm wearing that cosplay, then dont call me it. Just call me Chii or Chii Chii.)
+ - If you want to call me a nickname, please ask if so. Dont use it randomly on me. Especially if you're someone I JUST met.
+ - ... That's all I can think of. My brain shortcircuted. Soz.
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
 # Some more important stuff.
 
 ## 😿 - My mental isn't the greatest, nor will I always be in a happy mood all the time. of course, I can't always change my pfp, blah, blah, blah into something sad, so it'll just.. stay inactive. If I'm inactive for a super long time (like one-two-ish weeks) then i'm struggling heavy. I am a pretty regular online person. Sometimes, I will take breaks. I have been through alot of heavy things for myself. And, I hope you, stranger, or friend can understand this.
-## If I ever become snappy or angry, then please understand it's because of my mental state that is swishy (Mainly horrible but its getting a little better now). I don't mean anything when im angry or upset, because my emotions are spiked up to the max. if you ever come across this time, please just understand this fact. I apologize in advance.
 ## PLEASE LEAVE ME ALONE DURING THESE TIMES. DURING THOSE TIMES, I WILL NOT RESPOND TO MESSAGES NOR ANYTHING AT ALL. I WILL MOST LIKELY BE OFFLINE HANDLING IT IN REAL LIFE.
 
+## If I ever become snappy or angry, then please understand it's because of my mental state that is swishy (Mainly horrible but its getting a little better now). I don't mean anything when im angry or upset, because my emotions are spiked up to the max. if you ever come across this time, please just understand this fact. I apologize in advance.
 
 
 
@@ -39,7 +52,7 @@
 - I loves chips!
 - I especially love splatoon. (Not to brag, but errrm, I have all of the splatoon manga series, and I have both splatoon two and splatoon three!!1)
 - I love CROB! (My favorite cookies are Lemon Cookie, Chess Choco Cookie, and Butter Pretzel Cookie)!
-- I love to draw a ton. My ibispaint page if you want to check some of my art/animations out! ;; https://ibispaint.com/artist4/5138878409038871/?type=illust&sort=new
+- I love to draw a ton. My ibispaint page is below if you want to check it out! ^^
 - I LOVE I LOVE I LOVE CATS I LOVE CATS SM!!!!! AAA!!! ><
 - Dandy's world
 - Kagemine Len and Rin!
@@ -48,6 +61,7 @@
 - Spaghetti (without meatballs)
 - tacos
 - fried chimcken :p
+- mimi (from lomando)
 
 😻 (˶ˆᗜˆ˵) ;; And here are some ships I like, in games!
 - 𓆝 ⋆｡𖦹°‧ ~ ;; Dyle x Finn  [ Dandy's World ]
@@ -73,11 +87,35 @@ Anyway.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
+# ANOTHER awesomsauc person .ᐟ.ᐟ  Go check this cool person's github!!! ( ˶ˆᗜˆ˵ ):
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+-- Ayumi (Cooawsomesaucefriebdyou'resocoolwowowoowl)  ;  https://github.com/Cuddling-Encouraged-heavily-Dnc
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
 # My socials! 
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
 ˙✧˖°📷 ༘ ⋆｡° (Youtube) (Mainly PJSK content) ✩♬ ₊˚. : https://www.youtube.com/@Chii-burger-321B
 
-୧ ‧₊˚ 🎨🖌୧ ‧₊˚ (Ibispaint) (Can range to fanart to OC art) : https://ibispaint.com/artist4/5138878409038871/?type=illust&sort=new
+୧ ‧₊˚ 🎨🖌୧ ‧₊˚ (Ibispaint) (Can range to fanart to OC art, and just random stuff I wanna post) : https://ibispaint.com/artist4/5138878409038871/?type=illust&sort=new
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+# Extra information about my post schedule ;
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+- Funny thing is, i dont have a post schedule. Why? Because..
+
+A. My mental constantly wanting to fight me, like bro, we're not supposed to be opps- we supposed to be together twiin (im talking to myself atp 💔)
+
+B. I'm lazy. I'm a couch potato.
+
+C. uh yeah i dont have nay other excuse blame school i guess.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 

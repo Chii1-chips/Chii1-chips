@@ -81,6 +81,19 @@ Anyway.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
+# gender stuff yeah 
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+Oh boy you read that riht yeah
+ok so..
+I am nonbinary, but for sometime i've been branching more onto the term of transgender (Female to male).
+.. uh
+So.
+yea
+:P
+idk what else to put.
+
 # A cool person! Go check em out .ᐟ.ᐟ  ( ˶˘ ³˘(ˊᗜˋ*)!♡  ⊹ ࣪ ˖
 
 -- Cosmo (MY WIFE 👅) Their YT channel ; https://www.youtube.com/channel/UCYExIYmRPAfrahasrV_jT3w

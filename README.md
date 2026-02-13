@@ -9,7 +9,7 @@
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
-😾 (1) (⇀‸↼‶) ;; So.. You read that correctly. Firstly. PLEASE DO NOT, and when i mean it, DO NOT CALL ME she/her pronouns! I only ACCEPT these pronouns if I'm ROLEPLAYING as a character that uses them. I get extremely uncomfortable if used in any other situation. PLEASE only call me by they/them OR /he/him pronouns. I appericate if you'd respect this. It's fine if you don't know this at first, (When we first meet). 
+😾 (1) (⇀‸↼‶) ;; So.. You read that correctly. Firstly. PLEASE DO NOT, and when i mean it, DO NOT CALL ME she/her pronouns! I only ACCEPT these pronouns if I'm ROLEPLAYING as a character that uses them. I get extremely uncomfortable if used in any other situation. PLEASE only call me by he/him pronouns ONLY!! I appericate if you'd respect this. It's fine if you don't know this at first, (When we first meet). 
 
 ## 😾 (2) ( ˶°ㅁ°) !! ;; Also, please do not joke about su1c!de infront of me. As someone who has went through that heavily, I'd appericate if you talk about it PRIVATELY or in a serious manner. Please read the second half of the things I'm okay with to learn more about what I'm comfortable with during this.
 
@@ -75,7 +75,7 @@
 # (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ ;; > Some other extra information  - ִֶָ𓂃 ࣪˖ ִֶָ🐈་༘࿐
 
 Anyway.
-- I am non-binary, but I also accept he/him pronouns! (๑ᵔ⤙ᵔ๑)
+- greg
 - A slight dummy at jokes and stuff. My humor is just being stupid af and dry-like humor. I can be slightly sarcastic, because I can take things that are just metaphorically more seriously than they were meant to be. I apologize in advance! (⸝⸝๑﹏๑⸝⸝)
 - I can be a slight freak if you get to know me really well, so if that makes you uncomfortable, don't be afraid to say it. I'm always sorry if I make you uncomfortable! Sometimes I can't get these on the first try.
 
@@ -85,14 +85,10 @@ Anyway.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
-Oh boy you read that riht yeah
-ok so..
-I am nonbinary, but for sometime i've been branching more onto the term of transgender (Female to male).
-.. uh
-So.
-yea
-:P
-idk what else to put.
+I am trans.
+Yes uh..
+Yeah ok.
+I'm fine with they/them, but i beg of you please use he/him!!!1
 
 # A cool person! Go check em out .ᐟ.ᐟ  ( ˶˘ ³˘(ˊᗜˋ*)!♡  ⊹ ࣪ ˖
 

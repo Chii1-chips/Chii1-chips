@@ -38,7 +38,7 @@ Also, if you want, you can call me Elliot! Chii or Elliot, I love both. ^_^
 # Some more important stuff.
 
 ## 😿 - My mental isn't the greatest, nor will I always be in a happy mood all the time. of course, I can't always change my pfp, blah, blah, blah into something sad, so it'll just.. stay inactive. If I'm inactive for a super long time (like one-two-ish weeks) then i'm struggling heavy. I am a pretty regular online person. Sometimes, I will take breaks. I have been through alot of heavy things for myself. And, I hope you, stranger, or friend can understand this.
-## PLEASE LEAVE ME ALONE DURING THESE TIMES. DURING THOSE TIMES, I WILL NOT RESPOND TO MESSAGES NOR ANYTHING AT ALL. I WILL MOST LIKELY BE OFFLINE HANDLING IT IN REAL LIFE.
+## Most importantly, I WILL MOST LIKELY NOT BE RESPONDING TO MESSAGES AT ALL DURING THESE TIMES. IF YOU ARE NOT MY FRIEND, OR SOMEONE I KNOW, THEN YOU ARE NOT ENTITLED TO KNOW WHAT IS GOING ON WITH ME. I AM ONLY COMFORTABLE SHARING SENSITIVE INFORMATION TO PEOPLE THAT I KNOW, OR TRUST VERY WELL. IF YOU ARE NOT SOMEONE I KNOW, THEN PLEASE DO NOT ASK ME MY STATE OF MENTAL. THAT IS ONLY FOR CLOSE FRIENDS TO KNOW ONLY. I DO NOT CARE THAT IT MAY JUST BE CONCERN, IT IS MY INFORMATION TO SHARE TO THOSE I TRUST THE MOST IN THESE SITUATIONS.
 
 ## If I ever become snappy or angry, then please understand it's because of my mental state that is swishy (Mainly horrible but its getting a little better now). I don't mean anything when im angry or upset, because my emotions are spiked up to the max. if you ever come across this time, please just understand this fact. I apologize in advance.
 

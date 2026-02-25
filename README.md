@@ -185,4 +185,10 @@ Thank you to all the people mentioned. For making me continue life as it was, fo
 
 # # ⋅˚₊‧ ଳ ‧₊˚ ⋅ ;; " Don't get cooked, and stay off the Hook! "  /ref! ᔦꙬᔨ
 
+.
+
+<img width="579" height="478" alt="Screenshot 2026-02-24 9 38 45 PM" src="https://github.com/user-attachments/assets/9c3edfbf-335b-40db-9d96-6cc5587dda11" />
+
+.
+
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°

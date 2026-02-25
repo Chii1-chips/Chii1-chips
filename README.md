@@ -166,7 +166,8 @@ Thank you to all the people mentioned. For making me continue life as it was, fo
 
 .
 
-.<img width="336" height="287" alt="Screenshot 2026-02-21 6 55 06 PM" src="https://github.com/user-attachments/assets/e0db6023-c3a5-4a28-b3b1-7ff7c1d07e1f" />
+<img width="623" height="577" alt="Screenshot 2026-02-24 6 44 30 PM" src="https://github.com/user-attachments/assets/d1b35fa1-f99b-4f42-845e-45a71dcfd240" />
+
 
 
 .

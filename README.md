@@ -144,7 +144,7 @@ C. uh yeah i dont have nay other excuse blame school i guess.
 
 # Cosmo - You were one of the first few friends that, even if unknowingly had stopped me from attempting. I love the ocs we've made. Fez, Lpurple... I appericate everything you do. Your jokes. Your laughter. Our voicecalls. I will forever love our friendship until the ends of this earth.
 
-# Ayumi - I'm so gald you're there for me even when i don't share my struggles. I love your personaility, and art. Not, to add, I'm going to eat all of your art. yea. I also like times we hangout on Pony Town. That was always the neatest parts of our friendship between us.
+# Ayumi - I'm so gald you're there for me even when i don't share my struggles. I love your personaility, and art. Not to add, I'm going to eat all of your art. yea. I also like times we hangout on Pony Town, and the silly moments we share. That was always the neatest parts of our friendship between us.
 
 # Cyn - You were one of the first few friends to make me feel really appericated. I can't help but express my endearment to you. I rememeber the times we roleplayed, the chatter, the times in Pony Town, when i first experienced what friendship was truly like.
 

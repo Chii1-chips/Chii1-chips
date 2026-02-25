@@ -1,3 +1,11 @@
+
+.
+
+<img width="487" height="545" alt="Screenshot 2026-02-24 9 33 23 PM" src="https://github.com/user-attachments/assets/a675e8db-7e57-45c4-8248-faee0c413cb2" />
+
+.
+
+
 #  (˶ᵔᗜᵔ˶)ﾉﾞ !! hello . Hi. This is the starting introduction. 
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
@@ -128,7 +136,46 @@ B. I'm lazy. I'm a couch potato.
 C. uh yeah i dont have nay other excuse blame school i guess.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+# (You may skip this part if you not one of the people I mentioned) A Special Thank you to these people. (Is this too early to say?)
 
+# Gunner - Though we may have seperated, you were the person that taught me that life was more than it seemed.
+
+# Badger - My first friend. I have a ton to say about you. We may not ever see each other again, but you sharing your struggles with me, and us connecting helped me live just a little longer. I endear the times you helped make me the Fox Care place, even if it is discontinued, you have a special place in my heart. Badger, if you ever say this, PLEASE never give up. I waited for a long time for you to come back, and i'll wait even longer if it means I'll get a single message of you on nintendo.
+
+# Cosmo - You were one of the first few friends that, even if unknowingly had stopped me from attempting. I love the ocs we've made. Fez, Lpurple... I appericate everything you do. Your jokes. Your laughter. Our voicecalls. I will forever love our friendship until the ends of this earth.
+
+# Ayumi - I'm so gald you're there for me even when i don't share my struggles. I love your personaility, and art. Not, to add, I'm going to eat all of your art. yea. I also like times we hangout on Pony Town. That was always the neatest parts of our friendship between us.
+
+# Cyn - You were one of the first few friends to make me feel really appericated. I can't help but express my endearment to you. I rememeber the times we roleplayed, the chatter, the times in Pony Town, when i first experienced what friendship was truly like.
+
+# Shiloh - Despite us seperating for sometime, and our differences, I'm gald that you're still in my life. You encouraged me to keep playing a game I was loosing hope to do. You cheered up my day even by your texts, and humor of yours.
+
+# Hero - Even though we chat so randomly, I always liked how you were never afraid to show yourself and OCS. Sometimes, even the roleplays you randomly decide to do. Even If I can't understand what you mean sometimes, it's always a great time to have a chat with you.
+
+# The Sorrowful One - I always like chatting with you, no matter what happens. Everyday, I await for maybe a response or text incoming.. Even with our short messages, its always fun to have a little bit of brightness in my life.
+
+# BananaMT - Even if we barely chat, I remember the YS, the first time meeting you. Even if we didnt share the same fandoms, I always like the discord server you invited me in. Though, even if our conversations are a little dumb, I still get fond when i think of our past memories in Pony Town.
+
+Thank you to all the people mentioned. For making me continue life as it was, for making me laugh, for making the light shine brighter than it ever was.
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+.
+
+.
+
+.
+
+.<img width="336" height="287" alt="Screenshot 2026-02-21 6 55 06 PM" src="https://github.com/user-attachments/assets/e0db6023-c3a5-4a28-b3b1-7ff7c1d07e1f" />
+
+
+.
+
+.
+
+.
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 # You have reached the end of this GITHUB page! Wow! claps hands..! Anyway, this is an on-going wip, so, it is updated when I remember I want to put something in it.. Like extra information or details I wanna put!
 
  ... And now..!

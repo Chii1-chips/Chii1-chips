@@ -1,4 +1,4 @@
-( You may ask questions in my strawpage! I'll be sure to answer within' this very github page! )
+( You may ask questions in my strawpage! I'll be sure to answer within' this very github page! HOWEVER!! if i don't respond, either I was a little too uncomfortable with the question asked- or I haven't looked it my strawpage! I'll make sure to check in daily, if possible! ^_^ )
 
 .
 

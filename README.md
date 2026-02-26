@@ -160,6 +160,19 @@ C. uh yeah i dont have nay other excuse blame school i guess.
 Thank you to all the people mentioned. For making me continue life as it was, for making me laugh, for making the light shine brighter than it ever was.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+# (EXTRA!!!) Strawpage answers and questions!!!
+
+
+<img width="431" height="369" alt="Screenshot 2026-02-26 3 29 05 PM" src="https://github.com/user-attachments/assets/43c67ba5-dcb2-4858-8f9b-2996674c5c4c" />
+
+.
+
+.
+
+
+None as of now! ^_^
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
 .
 

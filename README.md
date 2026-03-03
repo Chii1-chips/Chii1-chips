@@ -19,7 +19,7 @@ Also, if you want, you can call me Elliot! Chii or Elliot, I love both. ^_^
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
-😾 (1) (⇀‸↼‶) ;; So.. You read that correctly. Firstly. PLEASE DO NOT, and when i mean it, DO NOT CALL ME she/her pronouns! I only ACCEPT these pronouns if I'm ROLEPLAYING as a character that uses them. I get extremely uncomfortable if used in any other situation. PLEASE only call me by he/him pronouns ONLY!! I appericate if you'd respect this. It's fine if you don't know this at first, (When we first meet). 
+😾 (1) (⇀‸↼‶) ;; So.. You read that correctly. Firstly. PLEASE DO NOT, and when i mean it, DO NOT CALL ME she/her pronouns! I only ACCEPT these pronouns if I'm ROLEPLAYING as a character that uses them. I get extremely uncomfortable if used in any other situation. PLEASE only call me by he/him or they/them pronouns ONLY!! I appericate if you'd respect this. It's fine if you don't know this at first, (When we first meet). 
 
 ## 😾 (2) ( ˶°ㅁ°) !! ;; Also, please do not joke about su1c!de infront of me. As someone who has went through that heavily, I'd appericate if you talk about it PRIVATELY or in a serious manner. Please read the second half of the things I'm okay with to learn more about what I'm comfortable with during this.
 
@@ -95,11 +95,16 @@ Anyway.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
-I am trans.
-Yes uh..
-Yeah ok.
-I'm fine with they/them, but i beg of you please use he/him!!!1
+So, I've been questioning transgender, so my pronouns can be interchangebly.
 
+He/him, or they/them.
+
+For the most part, i'm sticking with non-binary for now until i get the right stuff to transition.
+
+coguhs
+
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 # A cool person! Go check em out .ᐟ.ᐟ  ( ˶˘ ³˘(ˊᗜˋ*)!♡  ⊹ ࣪ ˖
 
 -- Cosmo (MY WIFE 👅) Their YT channel ; https://www.youtube.com/channel/UCYExIYmRPAfrahasrV_jT3w

@@ -60,6 +60,18 @@ Also, if you want, you can call me Elliot! Chii or Elliot, I love both. ^_^
 
 ## However, I am only clingy if you are a very close friend of mine, or someone I have alot of history with (You know who you guys are.. looks over at shiloh and cosmo 👀).
 
+-----
+
+# MORE stuff! This is about my gender as of now!
+
+## I go by he/him or they/them OR meow/meowself! The reason why I use meow/meowself because I find a ton of comfort in cats, and that's something i've always deared. You can use my pronouns interchangebly, but my main is he/him. 
+
+## For like i guess, more silly times you can use meow/meowself! If you dont know how to use meow/meowself.. here are two examples!
+
+## 1. "Meow is cool" (instead of "He is cool").
+
+## 2. "Meow did it meowself!" (instead of "He did it himself!").
+
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
@@ -97,22 +109,11 @@ Anyway.
 - A slight dummy at jokes and stuff. My humor is just being stupid af and dry-like humor. I can be slightly sarcastic, because I can take things that are just metaphorically more seriously than they were meant to be. I apologize in advance! (⸝⸝๑﹏๑⸝⸝)
 - I can be a slight freak if you get to know me really well, so if that makes you uncomfortable, don't be afraid to say it. I'm always sorry if I make you uncomfortable! Sometimes I can't get these on the first try.
 
-°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
-
-# gender stuff yeah 
-
-°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
-
-So, I've been questioning transgender, so my pronouns can be interchangebly.
-
-He/him, or they/them.
-
-For the most part, i'm sticking with non-binary for now until i get the right stuff to transition.
-
-coguhs
 
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
+
 # A cool person! Go check em out .ᐟ.ᐟ  ( ˶˘ ³˘(ˊᗜˋ*)!♡  ⊹ ࣪ ˖
 
 -- Cosmo (MY WIFE 👅) Their YT channel ; https://www.youtube.com/channel/UCYExIYmRPAfrahasrV_jT3w

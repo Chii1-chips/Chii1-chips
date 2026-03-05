@@ -52,6 +52,14 @@ Also, if you want, you can call me Elliot! Chii or Elliot, I love both. ^_^
 ## If I ever become snappy or angry, then please understand it's because of my mental state that is swishy (Mainly horrible but its getting a little better now). I don't mean anything when im angry or upset, because my emotions are spiked up to the max. if you ever come across this time, please just understand this fact. I apologize in advance.
 
 
+-----
+
+# More important stuff.
+
+## I am a clingy person. Or, well that's what I call myself. I can sometimes be unbearable to be around, and I can get sad really quickly. I AM a sensitive person, and you can know if im upset if i randomly go silent. I do not like confrontation.
+
+## However, I am only clingy if you are a very close friend of mine, or someone I have alot of history with (You know who you guys are.. looks over at shiloh and cosmo 👀).
+
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 

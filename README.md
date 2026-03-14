@@ -97,6 +97,7 @@ Also, if you want, you can call me Elliot! Chii or Elliot, I love both. ^_^
 - 𓆝 ⋆｡𖦹°‧ ~ ;; Dyle x Finn  [ Dandy's World ]
 - ⋆｡˚ ❀🪞❀˚ ｡⋆ ~ ;; Glisten x Boxten [ Dandy's World ]
 - ༄˖°.🍋.ೃ࿔*:･ ~ ;; Lemon Cookie x  Big Shot Spamton (CROB + Deltarune || (This is a crackship, not really that serious of a ship I like a little hehe.)
+- ──★ ˙🍓 ̟ !! - ;; Sprout x Boxten [ Dandy's World]
 - . ₊˚ ☎︎₊˚✧ ~ ;;  007n7 x Spamton (Forsaken verison + Deltarune) || (This is also another crackship, not a serious one. Just for the sillies, but i like it a bit.)
 
 (╭ರ_•́) - ;; Also, if you don't know the term of what a "crackship" is, it's like two characters from completely different fandoms paired together, unlikely to even LOVE each other at all in two different COMPLETE fandoms.. It can just be shortened to- "I wanna ship it because I find it funny". Or it can just be characters who met just ever so briefly. Kinda just like for the giggles.

@@ -185,7 +185,10 @@ Thank you to all the people mentioned. For making me continue life as it was, fo
 .
 
 
-None as of now! ^_^
+<img width="366" height="215" alt="Screenshot 2026-03-16 9 03 26 AM" src="https://github.com/user-attachments/assets/a92fc282-0422-49f8-add7-72c8f34f8364" />
+
+😼 ⤿ My favorite animal has to be CATS!!!! They are cuddly, playful, and are just a bunch of sillies .ᐟ ' ۶ৎ
+
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 

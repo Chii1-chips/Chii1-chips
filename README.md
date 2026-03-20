@@ -189,7 +189,7 @@ C. uh yeah i dont have nay other excuse blame school i guess.
 Thank you to all the people mentioned. For making me continue life as it was, for making me laugh, for making the light shine brighter than it ever was.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
-# (EXTRA!!!) Strawpage answers and questions!!!
+# (EXTRA!!!) Strawpage answers and questions!!! (And art!)
 
 
 <img width="431" height="369" alt="Screenshot 2026-02-26 3 29 05 PM" src="https://github.com/user-attachments/assets/43c67ba5-dcb2-4858-8f9b-2996674c5c4c" />
@@ -202,6 +202,11 @@ Thank you to all the people mentioned. For making me continue life as it was, fo
 <img width="366" height="215" alt="Screenshot 2026-03-16 9 03 26 AM" src="https://github.com/user-attachments/assets/a92fc282-0422-49f8-add7-72c8f34f8364" />
 
 😼 ⤿ My favorite animal has to be CATS!!!! They are cuddly, playful, and are just a bunch of sillies .ᐟ ' ۶ৎ
+
+<img width="376" height="382" alt="Screenshot 2026-03-20 1 06 58 PM" src="https://github.com/user-attachments/assets/65d12902-1edb-44be-b258-f72f2608a2b7" />
+
+😼 ⤿ wowowoowow i love this :O.. so silly :3 .ᐟ ' ۶ৎ
+
 
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°

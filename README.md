@@ -137,6 +137,12 @@ Anyway.
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
+# ANOTTTHHERR awesome duddddd!!!!!!! Go check out those amazing githuh :
+
+-- August (you so cool btw :D)  ;; https://github.com/kleintism
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
 # My socials! 
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°

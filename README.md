@@ -27,7 +27,7 @@ Also, if you want, you can call me Elliot! Chii or Elliot, I love both. ^_^
 
 🐱 (2) ( · ❛ ֊ ❛) ;; Here's another thing I'm okay with! Interacting with me. I'm pretty open to chat for any means, but I'm quite shy and can get nervous easily if I don't known someone well. So, please, understand that. Though, I'm not the best at comforting or doing advise during times of venting, but i'll always try my best. BUT, You can only vent to me if you're a close friend of mine, or an IRL friend of mine. I generally get a bit uncomfortable when a random stranger vents to me, because I simply don't know the person. 
 
-🐱 (3) (☞ ͡° ͜ʖ ͡°)☞ ;; Of course, for ships, it's totally cool! I don't ship too many characters, but you can always ask. just as long as you're a friend of mine! Close friends are always allowed as so, but just ask b4 doing so- and same goes w/ matching skins in PT. Just ask me, but as long as your a friend of mine.
+🐱 (3) (☞ ͡° ͜ʖ ͡°)☞ ;; For things like matching skins, pfps, etc!! You may ask freely, but only if you're a friend of mine!
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 

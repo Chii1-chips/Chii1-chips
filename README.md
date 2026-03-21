@@ -21,7 +21,7 @@ Also, if you want, you can call me Elliot! Chii or Elliot, I love both. ^_^
 
 😾 (1) (⇀‸↼‶) ;; So.. You read that correctly. Firstly. PLEASE DO NOT, and when i mean it, DO NOT CALL ME she/her pronouns! I only ACCEPT these pronouns if I'm ROLEPLAYING as a character that uses them. I get extremely uncomfortable if used in any other situation. PLEASE only call me by he/him or they/them pronouns ONLY!! I appericate if you'd respect this. It's fine if you don't know this at first, (When we first meet). 
 
-## 😾 (2) ( ˶°ㅁ°) !! ;; Also, please do not joke about su1c!de infront of me. As someone who has went through that heavily, I'd appericate if you talk about it PRIVATELY (still, in a serious manner) or in a serious manner generally. I may leave if you, or someone you know is talking about it. Just generally. I won't leave if it's just a random (of course, I can just zoom in and ignore them or block them). But it's a different story when it's FRIENDS. and friends of friends.
+## 😾 (2) ( ˶°ㅁ°) !! ;; Also, please do not joke about su1c!de infront of me. As someone who has went through that heavily, I'd appericate if you talk about it PRIVATELY (still, in a serious manner) or in a serious manner generally. I may leave if you, or someone you know is talking about it. Just generally. I won't leave if it's just a random (of course, I can just zoom in and ignore them or block them). But it's a different story when it's FRIENDS. and friends of friends. Sometimes, I may just leave the area/game entirely.
 
 😺 (1) (˶ˆᗜˆ˵) ;; Though, here are some I am fine with as long with permission! C+H. As long as I have C+H in my name, you're free to do those things! But, please, if I don't have them in my name, then, ask. 
 
@@ -64,7 +64,7 @@ I am a MINOR. (I will not say my direct age for obvious personal reasons). DO NO
 
 # More important stuff.
 
-## I am a clingy person. Or, well that's what I call myself. I can sometimes be unbearable to be around, and I can get sad really quickly. I AM a sensitive person, and you can know if im upset if i randomly go silent. I do not like confrontation.
+## I am a clingy person. Or, well that's what I call myself. I can sometimes be unbearable to be around, and I can get sad really quickly. I AM a sensitive person, and you can know if im upset if i randomly go silent. I do not like confrontation. but, sometimes, when i randomly go silent, it can mean I'm just randomly afk or I needed to do something. Just depends on the context.
 
 ## However, I am only clingy if you are a very close friend of mine, or someone I have alot of history with (You know who you guys are.. looks over at shiloh and cosmo 👀).
 

@@ -185,7 +185,9 @@ C. uh yeah i dont have nay other excuse blame school i guess.
 
 😼 ⤿ wowowoowow i love this :O.. so silly :3 .ᐟ ' ۶ৎ
 
+<img width="367" height="369" alt="Screenshot 2026-03-21 11 43 15 PM" src="https://github.com/user-attachments/assets/bcbbbc6e-fcce-46ee-9c17-9d41f7984928" />
 
+😼 ⤿ so whimsy. Maybe this is my call to resize it..? I'll do it! For sure. Love this silly piece .ᐟ ' ۶ৎ
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 

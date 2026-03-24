@@ -12,7 +12,7 @@
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
 😽  ── .✦ ;; I am Chii, but you can basically call me anything! Nicknames, or any cosplays I wear in games, especially Pony Town. I have been playing Pony Town since around 2021-2022 (Somewhere between that range of years).
-Also, if you want, you can call me Wyatt! Chii or Wyyat, I love both. ^_^
+Also, if you want, you can call me Wyatt! Chii or Wyatt, I love both. ^_^
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 # ദ്ദി◝ ⩊ ◜.ᐟ ;; Things I'm OKAY with, and things i'm not okay with (Important part). (≖_≖ 

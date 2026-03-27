@@ -189,6 +189,14 @@ C. uh yeah i dont have nay other excuse blame school i guess.
 
 😼 ⤿ so whimsy. Maybe this is my call to resize it..? I'll do it! For sure. Love this silly piece .ᐟ ' ۶ৎ
 
+<img width="376" height="330" alt="Screenshot 2026-03-27 2 35 00 PM" src="https://github.com/user-attachments/assets/dcde0527-3f2a-4227-92a0-307b8cd1cc84" />
+
+😼 ⤿ AWWWWW WAITR THIS IS SO GOOD!!!! I LOVE THIS!! eats this art piece.. .ᐟ ' ۶ৎ
+
+<img width="376" height="330" alt="Screenshot 2026-03-27 2 35 04 PM" src="https://github.com/user-attachments/assets/35494c86-a13c-4b9b-9ea0-33c99d062562" />
+
+😼 ⤿ " :) ". so silly. it encaptures every single feeling,,.. i love it .ᐟ ' ۶ৎ
+
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
 .

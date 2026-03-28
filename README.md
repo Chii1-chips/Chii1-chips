@@ -23,6 +23,8 @@ Also, if you want, you can call me Wyatt! Chii or Wyatt, I love both. ^_^
 
 ## 😾 (2) ( ˶°ㅁ°) !! ;; Also, please do not joke about su1c!de infront of me. As someone who has went through that heavily, I'd appericate if you talk about it PRIVATELY (still, in a serious manner) or in a serious manner generally. I may leave if you, or someone you know is talking about it. Just generally. I won't leave if it's just a random (of course, I can just zoom in and ignore them or block them). But it's a different story when it's FRIENDS. and friends of friends. Sometimes, I may just leave the area/game entirely.
 
+😾 (3) ( ˶°ㅁ°) !! : Another thing. DO NOT copy my ponies. Please don't take any inspiration on my ponies. No matter if youre my friend or not, you are still not allowed to copy my pony UNLESS im gifting you one. k? okay!
+
 😺 (1) (˶ˆᗜˆ˵) ;; Though, here are some I am fine with as long with permission! C+H. As long as I have C+H in my name, you're free to do those things! But, please, if I don't have them in my name, then, ask. But for closer friends (like sho, cosmo, ayumi) you guys are free to cuddle and stuff!!! <33.  for friends, you are always allowed to cuddle or kiss and stuff unless i say so. ^_^
 
 🐱 (2) ( · ❛ ֊ ❛) ;; Here's another thing I'm okay with! Interacting with me. I'm pretty open to chat for any means, but I'm quite shy and can get nervous easily if I don't known someone well. So, please, understand that. Though, I'm not the best at comforting or doing advise during times of venting, but i'll always try my best. BUT, You can only vent to me if you're a close friend of mine, or an IRL friend of mine. I generally get a bit uncomfortable when a random stranger vents to me, because I simply don't know the person. 

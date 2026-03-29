@@ -1,5 +1,7 @@
 ( You may ask questions in my strawpage! I'll be sure to answer within' this very github page! HOWEVER!! if i don't respond, either I was a little too uncomfortable with the question asked- or I haven't looked it my strawpage! I'll make sure to check in daily, if possible! ^_^ )
 
+(You may also ask in my atabook! Same with the strawpage. ^_^)
+
 .
 
 <img width="487" height="545" alt="Screenshot 2026-02-24 9 33 23 PM" src="https://github.com/user-attachments/assets/a675e8db-7e57-45c4-8248-faee0c413cb2" />

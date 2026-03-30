@@ -111,6 +111,7 @@ I am a MINOR. (I will not say my direct age for obvious personal reasons). DO NO
 - ༄˖°.🍋.ೃ࿔*:･ ~ ;; Lemon Cookie x  Big Shot Spamton (CROB + Deltarune || (This is a crackship, not really that serious of a ship I like a little hehe.)
 - ──★ ˙🍓 ̟ !! - ;; Sprout x Boxten [ Dandy's World]
 - . ₊˚ ☎︎₊˚✧ ~ ;;  007n7 x Spamton (Forsaken verison + Deltarune) || (This is also another crackship, not a serious one. Just for the sillies, but i like it a bit.)
+- ˚₊‧꒰ა🐦⚔໒꒱ ‧₊˚ ;; Kris x Berdly (Deltarune)
 
 (╭ರ_•́) - ;; Also, if you don't know the term of what a "crackship" is, it's like two characters from completely different fandoms paired together, unlikely to even LOVE each other at all in two different COMPLETE fandoms.. It can just be shortened to- "I wanna ship it because I find it funny". Or it can just be characters who met just ever so briefly. Kinda just like for the giggles.
 

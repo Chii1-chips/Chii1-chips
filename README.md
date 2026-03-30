@@ -63,8 +63,19 @@ I am a MINOR. (I will not say my direct age for obvious personal reasons). DO NO
 
 ## If I ever become snappy or angry, then please understand it's because of my mental state that is swishy (Mainly horrible but its getting a little better now). I don't mean anything when im angry or upset, because my emotions are spiked up to the max. if you ever come across this time, please just understand this fact. I apologize in advance.
 
+Now... how do you know if you're a close friend of the sorts?
+Alright.
 
------
+- Friend - I dont tell you about my mental. we yap sometimes, neutral.
+
+- CLOSE friend - I tell you about my experiences and my mental health a little bit.
+
+- HEAVILY close friend. - I tell you alot about my experiences, trauma and mental health. I am comfortable around you, and have known you for awhile to trust, and I will cuddle freely with you if you allow it as comfort.
+
+- EXTREMELY close friend: I tell you my age, voice, and alot more about me I dont share to others. And maybe some irl parts about me. I WILL ONLY share this to people I know are around my age. This is where I start to be a little clingy, because I've shared tons of parts about me.
+
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
+
 
 # More important stuff.
 
@@ -72,7 +83,7 @@ I am a MINOR. (I will not say my direct age for obvious personal reasons). DO NO
 
 ## However, I am only clingy if you are a very close friend of mine, or someone I have alot of history with (You know who you guys are.. looks over at shiloh and cosmo 👀).
 
------
+°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 
 # MORE stuff! This is about my gender as of now!
 

@@ -1,3 +1,4 @@
+
 ( You may ask questions in my strawpage! I'll be sure to answer within' this very github page! HOWEVER!! if i don't respond, either I was a little too uncomfortable with the question asked- or I haven't looked it my strawpage! I'll make sure to check in daily, if possible! ^_^ )
 
 (You may also ask in my atabook! Same with the strawpage. ^_^)
@@ -215,6 +216,12 @@ C. uh yeah i dont have nay other excuse blame school i guess.
 <img width="376" height="330" alt="Screenshot 2026-03-27 2 35 04 PM" src="https://github.com/user-attachments/assets/35494c86-a13c-4b9b-9ea0-33c99d062562" />
 
 😼 ⤿ " :) ". so silly. it encaptures every single feeling,,.. i love it .ᐟ ' ۶ৎ
+
+
+<img width="369" height="297" alt="Screenshot 2026-04-02 6 52 14 AM" src="https://github.com/user-attachments/assets/ddeae9bb-68b6-4e7a-9711-fa8b62ecc25a" />
+
+😼 ⤿ sadge.,, :(..... ' ۶ৎ
+
 
 °‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°‧ 𓆝 𓆟 𓆞 ·｡°
 

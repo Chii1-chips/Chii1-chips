@@ -95,6 +95,7 @@ SHIPS I like!
 
 - Sprout x Boxten [ Dandy's World ]
 - Sprout x Rodger [ Dandy's World ]
+- Kris x Berdly [ Deltarune ]
 - Lemon cookie x big shot spamton [ CROB x Deltarune ] | A crackship!
 - 007n7 x spamton [ Forsaken ver. x Deltarune ] | ANOTHER crackship!
 
@@ -108,7 +109,7 @@ but for now ...
  
 remember... !
 
-# ｡⁠.+⁠ °く⁠コ⁠:⁠彡｡⁠.ﾟ⁠+⁠ • " Don't get cooked, stay off the hook! " /ref ｡⁠.+⁠ °く⁠コ⁠:⁠彡｡⁠.ﾟ⁠+⁠ •
+# ｡⁠.+⁠ °く⁠コ⁠:⁠彡｡⁠.ﾟ⁠+⁠ • " Don't get cooked, stay off the hook! " /ref
 
 ![splatoon-2-pearl](https://github.com/user-attachments/assets/0933d119-aedf-4a2f-8a3f-72336c58e9c7)
 

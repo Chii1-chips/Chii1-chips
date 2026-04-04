@@ -65,4 +65,4 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 - husband/boyfriend/any masculine nicknames. (Same as the second one.)
 - If you want to call me a nickname, please ask me before you use it on me! Please & thanks!
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆
+⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡

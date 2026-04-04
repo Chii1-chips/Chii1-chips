@@ -102,4 +102,17 @@ SHIPS I like!
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 
+# This is the end of this github page for NOW!! I may add stuff in the future, but for now? I need to take a break. 
+
+but for now ...
+ 
+remember... !
+
+# ｡⁠.+⁠ °く⁠コ⁠:⁠彡｡⁠.ﾟ⁠+⁠ • " Don't get cooked, stay off the hook! " /ref ｡⁠.+⁠ °く⁠コ⁠:⁠彡｡⁠.ﾟ⁠+⁠ •
+
+![splatoon-2-pearl](https://github.com/user-attachments/assets/0933d119-aedf-4a2f-8a3f-72336c58e9c7)
+
+⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+
+
 ╰─..★.──────────╯

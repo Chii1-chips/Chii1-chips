@@ -3,6 +3,8 @@
 # ♯ |  Chii's silly little corner .ᐟ 
 
 
+(You may ask questions in my atabook! You also may ask in my strawpage!)
+
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 
 ![cecesrhaccc1-on-tiktok-cecesrhaccc1](https://github.com/user-attachments/assets/b7fb695e-2166-447e-9862-6a1777655522)
@@ -75,9 +77,28 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 ![cat-cat-meme](https://github.com/user-attachments/assets/8446efc6-cbb7-4d4c-b547-306f4bb97f2b)
 
 - Girl, dude, bro, sis.. (Sure, i dont care aabout this one lmao.)
-- Wife/girlfriend/any fenimine nicknames. (Only if you do this as a joke of course !. AND only if you are a heavily close friend).
-- husband/boyfriend/any masculine nicknames. (Same as the second one.)
+- Wife/girlfriend (Only if you do this as a joke of course !. AND only if you are a heavily close friend).
+- husband/boyfriend (Same as the second one.)
 - If you want to call me a nickname, please ask me before you use it on me! Please & thanks!
+
+⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+
+# Fandoms, things I like!
+
+- spaghetti (NO MEATBALLS)
+- splatoon
+- deltarune
+- mimi from lomando 
+- CROB (Butter pretzel cookie, lemon cookie)
+
+SHIPS I like! 
+
+- Sprout x Boxten [ Dandy's World ]
+- Sprout x Rodger [ Dandy's World ]
+- Lemon cookie x big shot spamton [ CROB x Deltarune ] | A crackship!
+- 007n7 x spamton [ Forsaken ver. x Deltarune ] | ANOTHER crackship!
+
+.. So.. You might not know what a crackship is- thats alright! A crackship is when you ship two characters even UNLIKELY to like each other, met briefly, or hell, could even be in a different fandom! It can be shorten up to, " I wanna ship it for the funnies... ' ^_^.
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 

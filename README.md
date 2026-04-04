@@ -1,3 +1,5 @@
+╭──────────.★..─╮
+
 # ♯ |  Chii's silly little corner .ᐟ 
 
 
@@ -79,3 +81,4 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 
+╰─..★.──────────╯

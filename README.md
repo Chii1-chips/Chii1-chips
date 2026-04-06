@@ -37,6 +37,7 @@ You may use my pronouns interchangebly, but my main is he/him!
 -  homophobics/transphobics... basically just people against lgbtq .
 - zoophiles
 - racists
+- ex friends . I don't need to add more. We seperated for a reason.
 
 I will most likely block you *freely* if you make me uncomfortable. !
 
@@ -46,7 +47,7 @@ I will most likely block you *freely* if you make me uncomfortable. !
 
 - I am a minor (in the rages of 13-15.) So please be wary. I do not mind older friends, but if you are over 18+, then respectfully, keep the tone friendly .
 
-- I am a sensitive person, and someone with trauma. I may get triggered easily by sucidal jokes. Sucide is a very heavy topic, and if you, or your friends talk about it, i may just leave the game entirely or space without warning. I am doing this for my mental. I am, also clingy to people when I share personal information to!.
+## I am a sensitive person, and someone with trauma. I may get triggered easily by sucidal jokes. Sucide is a very heavy topic, and if you, or your friends talk about it, i may just leave the game entirely or space without warning. I am doing this for my mental. I am, also clingy to people when I share personal information to!.
 
 - Do NOT copy/take inspo my skins whatsoever in pt. Doesn't matter. It doesn't matter if you're a friend of mine or not, do not copy them UNLESS i'm gifting you one. okay? ok! ^_^ .
 

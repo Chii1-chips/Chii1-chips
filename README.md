@@ -23,6 +23,8 @@ Unsure of how to use meow/meowself?
 
 You may use my pronouns interchangebly, but my main is he/him!
 
+## DO NOT EVER CALL ME SHE/HER pronouns. it makes me extremely uncomfortable. Its fine if you get mixed up when we first meet, but theres really no excuse if we've been friends for a awhile. I only ACCEPT these pronouns if im *ROLEPLAYING* as a character that has them. ONLY.
+
 ![trans-flag-trans](https://github.com/user-attachments/assets/23597a06-9fee-4c89-b7af-c31b2fdb77d6)
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌

@@ -47,7 +47,7 @@ I will most likely block you *freely* if you make me uncomfortable. !
 
 ## The do's, the not's the yadada..
 
-- I am a minor (in the rages of 13-15.) So please be wary. I do not mind older friends, but if you are over 18+, then respectfully, keep the tone friendly .
+- I am a minor (in the ranges of 13-15.) So please be wary. I do not mind older friends, but if you are over 18+, then respectfully, keep the tone friendly .
 
 ## I am a sensitive person, and someone with trauma. I may get triggered easily by sucidal jokes. Sucide is a very heavy topic, and if you, or your friends talk about it, i may just leave the game entirely or space without warning. I am doing this for my mental. I am, also clingy to people when I share personal information to!.
 

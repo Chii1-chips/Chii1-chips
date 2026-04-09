@@ -101,6 +101,7 @@ SHIPS I like!
 - Kris x Berdly [ Deltarune ]
 - Lemon cookie x big shot spamton [ CROB x Deltarune ] | A crackship!
 - 007n7 x spamton [ Forsaken ver. x Deltarune ] | ANOTHER crackship!
+- Debt Collector x Mafioso [ Frozen Soul ]
 
 .. So.. You might not know what a crackship is- thats alright! A crackship is when you ship two characters even UNLIKELY to like each other, met briefly, or hell, could even be in a different fandom! It can be shorten up to, " I wanna ship it for the funnies... ' ^_^.
 

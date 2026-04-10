@@ -35,7 +35,7 @@ You may use my pronouns interchangebly, but my main is he/him!
 
 ## My type of humor, and.. you know, becoming friends with me!
 
-I do NOT have a filter WHATSOEVER. I may say things I dont mean to come off as rude, but I am very open to 'freaky' or weird humor. Please note that once we are joking, even we just met, I might go a little wacky because I'm testing if you want to be friends with me. If you don't like this type of humor, just block me.. and uh.. yea. :) .  I don't put tone tags because I don't really need them for me sometimes. If you want, you can ask for me to use tone tags, but for the most part, I'm joking. Unless it's about sucidie or my mental, that's when im serious. K? Okay! ^_^ .
+I do NOT have a filter WHATSOEVER. I may say things I dont mean to come off as rude, but I am very open to 'freaky' or weird humor. Please note that once we are joking, even we just met, I might go a little off the walls sometimes. If you don't like this type of humor, than you can tell me! Idm . Just be kind about it.  I don't put tone tags because I don't really need them for me sometimes. If you want, you can ask for me to use tone tags, but for the most part, I'm joking. Unless it's about sucidie or my mental, that's when im serious. K? Okay! ^_^ .
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 

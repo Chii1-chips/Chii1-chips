@@ -85,6 +85,8 @@ I will most likely block you *freely* if you make me uncomfortable. !
 
 I have anxiety and depression (yes, I'm diagnosed!) , so, I most likely won't go up to you first. I don't mind interaction, of course, I always encourage it! :) Of course, please read my name before int. I have constant mood swings. I am a senstive person. You'll know if i'm upset if I don't talk or don't int back. However, SOMETIMES, I may go on sidequests, meaning I just forget to tell you if I'm going afk. I can pretty much just say whatever i am thinking in the moment, or say things without knowing are rude. I don't typically use tone tags, but if they help you, then ask! idm ^_^. (just be kind about it). I am not very confrontational, so I may just block or ignore entirely. Of course, I am joking about literally everything. However, the only times when I'm serious is when I'm helping someone, or I'm talking about my mental health/struggles.
 
+⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+
 ## The do's, the not's the yadada..
 
 - I am a minor (in the ranges of 13-15.) So please be wary. I do not mind older friends, but if you are over 18+, then respectfully, keep the tone friendly .

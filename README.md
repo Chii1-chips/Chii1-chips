@@ -4,7 +4,35 @@
 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
 
-# ♯ |  Chii's silly little corner .ᐟ 
+# ⏻ Loading  {Chiis_silly_little_corner_github_page.exe} . . .
+.
+ 
+.
+ 
+.
+
+.
+ 
+            .          .            .  almost there...
+
+.            
+
+  .          
+        
+
+.
+
+
+ .
+
+
+ .
+
+ .
+
+ .
+
+ ## Complete! But is it really..? Hm.
 
 
 (You may ask questions in my atabook! You also may ask in my strawpage!)

@@ -33,9 +33,7 @@ You may use my pronouns interchangebly, but my main is he/him!
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 
-## My type of humor, and.. you know, becoming friends with me!
-
-I do NOT have a filter WHATSOEVER (Which means, I just say what's on top of my head. Nothing like, too wild). I may say things I dont mean to come off as rude, but I am very open to 'freaky' or weird humor. Please note that once we are joking, even we just met, I might go a little off the walls sometimes. If you don't like this type of humor, than you can tell me! Idm . Just be kind about it.  I don't put tone tags because I don't really need them for me sometimes. If you want, you can ask for me to use tone tags, but for the most part, I'm joking. Unless it's about sucidie or my mental, that's when im serious. K? Okay! ^_^ .
+<img width="323" height="277" alt="wink-cute" src="https://github.com/user-attachments/assets/fa597365-e3ff-4269-82da-705502808f58" />
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 
@@ -51,11 +49,15 @@ I will most likely block you *freely* if you make me uncomfortable. !
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 
+## Things you should know before interacting w/ silly ol' me!
+
+I have anxiety and depression (yes, I'm diagnosed!) , so, I most likely won't go up to you first. I don't mind interaction, of course, I always encourage it! :) Of course, please read my name before int. I have constant mood swings. I am a senstive person. You'll know if i'm upset if I don't talk or don't int back. However, SOMETIMES, I may go on sidequests, meaning I just forget to tell you if I'm going afk. I can pretty much just say whatever i am thinking in the moment, or say things without knowing are rude. I don't typically use tone tags, but if they help you, then ask! idm ^_^. (just be kind about it). I am not very confrontational, so I may just block or ignore entirely. Of course, I am joking about literally everything. However, the only times when I'm serious is when I'm helping someone, or I'm talking about my mental health/struggles.
+
 ## The do's, the not's the yadada..
 
 - I am a minor (in the ranges of 13-15.) So please be wary. I do not mind older friends, but if you are over 18+, then respectfully, keep the tone friendly .
 
-## I am a sensitive person, and someone with trauma. I may get triggered easily by sucidal jokes. Sucide is a very heavy topic, and if you, or your friends talk about it, i may just leave the game entirely or space without warning. I am doing this for my mental. I am, also clingy to people when I share personal information to!.
+## I may get triggered easily by sucidal jokes. Sucide is a very heavy topic, and if you, or your friends talk about it, i may just leave the game entirely or space without warning. I am doing this for my mental. I am, also clingy to people when I share personal information to!.
 
 - Do NOT copy/take inspo my skins whatsoever in pt. Doesn't matter. It doesn't matter if you're a friend of mine or not, do not copy them UNLESS i'm gifting you one. okay? ok! ^_^ .
 
@@ -75,7 +77,7 @@ Friend - We talk, yap, I don't share any senstive information like my mental.
 
 Close friend - By now, I let you vent to me. I share my experiences a little, and I let you cuddle me freely! woah . . . :O
 
-Heavily close friend - I tell alot about my personal life, photos irl, and I may start getting clingy as I've shared a ton of information. You are allowed to call me any nicknames by now! (Wife, husband, etc etc.)
+Heavily close friend - I tell alot about my personal life, photos irl, (maybe age), and I may start getting clingy as I've shared a ton of information. You are allowed to call me any nicknames by now! (Wife, husband, etc etc.)
 
 Extremely close friend - I share you my voice, *maybe my face*, my mental health struggles, and this is where I start to cling more onto you. It's mainly because I've shared so much about myself.
 
@@ -99,6 +101,7 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 - deltarune
 - mimi from lomando 
 - CROB (Butter pretzel cookie, lemon cookie)
+- Minecraft
 
 SHIPS I like! 
 

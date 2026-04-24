@@ -11,6 +11,9 @@
  
 .
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/g19.gif" width="220">
+
+ <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/g95.gif" width="220">
+
 .
 
 .
@@ -21,10 +24,10 @@
 
   .          
         
-
+<p align="center"> <img src="https://blinkies.cafe/b/blinkiesCafe-1g.gif" width="220">
 .
 
-
+<p align="center"> <img src="https://64.media.tumblr.com/0c996fba77bd86422f5a9ba4d4f2cdfc/bef09c5f4baf7e81-cf/s250x400/6cd59ae98ca776a6832477de7ca3e40e53e34401.gifv" width="220">
  .
 
 

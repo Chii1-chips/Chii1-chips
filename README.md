@@ -1,5 +1,7 @@
 ╭──────────.★..─╮
 
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
+
 ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
@@ -166,5 +168,7 @@ remember... !
 ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
+
+   <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
    
 ╰─..★.──────────╯

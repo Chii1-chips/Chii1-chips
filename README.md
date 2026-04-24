@@ -42,7 +42,7 @@
 
 (You may ask questions in my atabook! You also may ask in my strawpage!)
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 ![cecesrhaccc1-on-tiktok-cecesrhaccc1](https://github.com/user-attachments/assets/b7fb695e-2166-447e-9862-6a1777655522)
 
@@ -68,11 +68,11 @@ You may use my pronouns interchangebly, but my main is he/him!
 
 ^^ I am also trans! Woah !! (female to male) .!
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine17.gif" width="1000">
 
 <img width="323" height="277" alt="wink-cute" src="https://github.com/user-attachments/assets/fa597365-e3ff-4269-82da-705502808f58" />
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 ## DNI list !.
 
@@ -84,13 +84,13 @@ You may use my pronouns interchangebly, but my main is he/him!
 
 I will most likely block you *freely* if you make me uncomfortable. !
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine17.gif" width="1000">
 
 ## Things you should know before interacting w/ silly ol' me!
 
 I have anxiety and depression (yes, I'm diagnosed!) , so, I most likely won't go up to you first. I don't mind interaction, of course, I always encourage it! :) Of course, please read my name before int. I am a senstive person. You'll know if i'm upset if I don't talk or don't int back. However, SOMETIMES, I may go on sidequests, meaning I just forget to tell you if I'm going afk. I can pretty much just say whatever i am thinking in the moment, or say things without knowing are rude. I don't typically use tone tags, but if they help you, then ask! idm ^_^. (just be kind about it). I am not very confrontational, so I may just block or ignore entirely. Of course, I am joking about literally everything. However, the only times when I'm serious is when I'm helping someone, or I'm talking about my mental health/struggles.
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 ## The do's, the not's the yadada..
 
@@ -108,7 +108,7 @@ I have anxiety and depression (yes, I'm diagnosed!) , so, I most likely won't go
 
 Speaking of which.. how do you know if you're a close friend of mine? vvv
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine17.gif" width="1000">
 
 ## FRIEND RANGE .
 
@@ -120,7 +120,7 @@ Heavily close friend - I tell alot about my personal life, photos irl, (maybe ag
 
 Extremely close friend - I share you my voice, *maybe my face*, my mental health struggles, and this is where I start to cling more onto you. It's mainly because I've shared so much about myself.
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 ## Nicknames, and such!
 
@@ -131,7 +131,7 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 - husband/boyfriend (Same as the second one.)
 - If you want to call me a nickname, please ask me before you use it on me! Please & thanks!
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine17.gif" width="1000">
 
 # Fandoms/things I like!
 
@@ -153,7 +153,7 @@ SHIPS I like!
 
 .. So.. You might not know what a crackship is- thats alright! A crackship is when you ship two characters even UNLIKELY to like each other, met briefly, or hell, could even be in a different fandom! It can be shorten up to, " I wanna ship it for the funnies... ' ^_^.
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 # This is the end of this github page for NOW!! I may add stuff in the future, but for now? I need to take a break. 
 
@@ -165,7 +165,7 @@ remember... !
 
 ![splatoon-2-pearl](https://github.com/user-attachments/assets/0933d119-aedf-4a2f-8a3f-72336c58e9c7)
 
-⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine17.gif" width="1000">
 
 
 ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 

@@ -121,14 +121,14 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 
 ![cat-cat-meme](https://github.com/user-attachments/assets/8446efc6-cbb7-4d4c-b547-306f4bb97f2b)
 
-- Girl, dude, bro, sis.. (Sure, i dont care aabout this one lmao.)
+- Girl, dude, bro, sis.. (Sure, i dont care about this one lmao.)
 - Wife/girlfriend (Only if you do this as a joke of course !. AND only if you are a heavily close friend).
 - husband/boyfriend (Same as the second one.)
 - If you want to call me a nickname, please ask me before you use it on me! Please & thanks!
 
 ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡˚𖦹𓆜✩⋆ ⋆⭒𓆟⋆｡
 
-# Fandoms, things I like!
+# Fandoms/things I like!
 
 - spaghetti (NO MEATBALLS)
 - splatoon

@@ -8,7 +8,7 @@
 .
  
 .
- 
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/g19.gif" width="220">
 .
 
 .

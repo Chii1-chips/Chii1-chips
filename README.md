@@ -1,5 +1,7 @@
 ╭──────────.★..─╮
 
+(( ! Thank you nova for showing me how to do these blinkies!!!!!!! shout out to him :) !!! >> https://github.com/novabunnii !
+
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
 
 ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 

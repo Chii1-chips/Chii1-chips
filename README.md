@@ -40,7 +40,7 @@
  ## Complete! But is it really..? Hm.
 
 
-(You may ask questions in my atabook! You also may ask in my strawpage!)
+## (You may ask questions in my atabook! You also may ask in my strawpage! Scroll down to see your art put on the stadiums, and your questions being asked!)
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 

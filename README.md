@@ -24,7 +24,7 @@
 
   .          
         
-<p align="center"> <img src="https://blinkies.cafe/b/blinkiesCafe-1g.gif" width="220">
+<p align="center"> <img src="https://64.media.tumblr.com/9689deaac39b4397de878ca9d6c0875d/46b04cc381e348dd-52/s250x400/b32cd7ff876d95359965678643281041e7c6fd10.gifv" width="220">
 .
 
 <p align="center"> <img src="https://64.media.tumblr.com/0c996fba77bd86422f5a9ba4d4f2cdfc/bef09c5f4baf7e81-cf/s250x400/6cd59ae98ca776a6832477de7ca3e40e53e34401.gifv" width="220">

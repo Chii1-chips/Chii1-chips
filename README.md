@@ -141,6 +141,9 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 - splatoon
 - deltarune
 - mimi from lomando 
+
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/stamps/b59.png" width="220">
+ 
 - CROB (Butter pretzel cookie, lemon cookie)
 - Minecraft
 

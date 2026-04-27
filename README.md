@@ -160,6 +160,8 @@ SHIPS I like!
 
 .. So.. You might not know what a crackship is- thats alright! A crackship is when you ship two characters even UNLIKELY to like each other, met briefly, or hell, could even be in a different fandom! It can be shorten up to, " I wanna ship it for the funnies... ' ^_^.
 
+#### Quote as of April 26 2026: "I collect people like they're uno cards" - me
+
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 # This is the end of this github page for NOW!! I may add stuff in the future, but for now? I need to take a break. 

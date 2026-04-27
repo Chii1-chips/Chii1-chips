@@ -84,6 +84,7 @@ You may use my pronouns interchangebly, but my main is he/him!
 - zoophiles
 - racists
 - ex friends . I don't need to add more. We seperated for a reason.
+- anything that is ai related.
 
 I will most likely block you *freely* if you make me uncomfortable. !
 

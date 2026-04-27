@@ -6,6 +6,7 @@
 
 ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 
+# I DO NOT WANT SPAM FOLLOWS!!! I DO NOT WANT SPAM FOLLOW ACCOUNTS!!! I DO NOT WANT IT!!!!! OR ELSE I'LL SPRAY BOTTLE YOU!!.
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
 
 # ⏻ Loading  {Chiis_silly_little_corner_github_page.exe} . . .

@@ -9,6 +9,21 @@
 # I DO NOT WANT SPAM FOLLOWS!!! I DO NOT WANT SPAM FOLLOW ACCOUNTS!!! I DO NOT WANT IT!!!!! OR ELSE I'LL SPRAY BOTTLE YOU!!.
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
 
+   # DNI list ! READ BEFORE YOU FOLLOW.
+
+# - proshippers/darkshippers.
+# -  homophobics/transphobics... basically just people against lgbtq .
+# - zoophiles
+# - racists
+# - ex friends . I don't need to add more. We seperated for a reason.
+# - anything that is ai related/ai supporters.
+
+
+# I will most likely block you *freely* if you make me uncomfortable OR if you're my dni list. !
+
+# I had to unfortunately move this to the top because a proshipper/comshipper followed me, and it made me extremely uncomfortable. PLEASE DNI IF YOU ARE IN MY LIST OF DNI's. thank you.
+
+
 # ⏻ Loading  {Chiis_silly_little_corner_github_page.exe} . . .
 .
  
@@ -46,6 +61,7 @@
 ## (You may ask questions in my atabook! You also may ask in my strawpage! Scroll down to see your art put on the stadiums, and your questions being asked!)
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
+
 
 ![cecesrhaccc1-on-tiktok-cecesrhaccc1](https://github.com/user-attachments/assets/b7fb695e-2166-447e-9862-6a1777655522)
 
@@ -86,7 +102,10 @@ You may use my pronouns interchangebly, but my main is he/him!
 - ex friends . I don't need to add more. We seperated for a reason.
 - anything that is ai related.
 
-I will most likely block you *freely* if you make me uncomfortable. !
+
+I will most likely block you *freely* if you make me uncomfortable OR if you're my dni list. !
+
+I had to unfornuately move this to the top because a proshipper/comshipper followed me.
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine17.gif" width="1000">
 

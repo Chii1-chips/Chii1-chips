@@ -7,11 +7,11 @@
 ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 
 # I DO NOT WANT SPAM FOLLOWS!!! I DO NOT WANT SPAM FOLLOW ACCOUNTS!!! I DO NOT WANT IT!!!!! OR ELSE I'LL SPRAY BOTTLE YOU!!.
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
 
-   # DNI list ! READ BEFORE YOU FOLLOW.
 
-# - proshippers/darkshippers.
+   # DNI list ! READ BEFORE YOU FOLLOW/INT WITH ME.
+
+# - proshippers/darkshippers/comshippers
 # -  homophobics/transphobics... basically just people against lgbtq .
 # - zoophiles
 # - racists
@@ -23,7 +23,10 @@
 
 # I had to unfortunately move this to the top because a proshipper/comshipper followed me, and it made me extremely uncomfortable. PLEASE DNI IF YOU ARE IN MY LIST OF DNI's. thank you.
 
-
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
+   
+<p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
+   
 # ⏻ Loading  {Chiis_silly_little_corner_github_page.exe} . . .
 .
  

@@ -21,7 +21,7 @@
 
 # I will most likely block you *freely* if you make me uncomfortable OR if you're my dni list. !
 
-# I had to unfortunately move this to the top because a proshipper/comshipper followed me, and it made me extremely uncomfortable. PLEASE DNI IF YOU ARE IN MY LIST OF DNI's. thank you.
+# I had the feel to unfortunately move this to the top because a proshipper/comshipper followed me, and it made me extremely uncomfortable. PLEASE DNI IF YOU ARE IN MY LIST OF DNI's. thank you.
 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　
    

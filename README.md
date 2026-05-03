@@ -97,19 +97,11 @@ You may use my pronouns interchangebly, but my main is he/him!
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
-## DNI list !.
 
-- proshippers/darkshippers.
--  homophobics/transphobics... basically just people against lgbtq .
-- zoophiles
-- racists
-- ex friends . I don't need to add more. We seperated for a reason.
-- anything that is ai related.
+<img width="335" height="544" alt="Screenshot 2026-05-03 11 00 28 AM" src="https://github.com/user-attachments/assets/5da7229f-abbe-4932-9fa8-268a950a58bf" />
 
 
-I will most likely block you *freely* if you make me uncomfortable OR if you're my dni list. !
-
-I had to unfornuately move this to the top because a proshipper/comshipper followed me.
+Drawing I made of a crackship! Lpurple {friend's oc} x hoax {springtrap} {rblx, and BBN}
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine17.gif" width="1000">
 

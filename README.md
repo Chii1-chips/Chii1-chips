@@ -6,8 +6,9 @@
 
 ✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 
-# I DO NOT WANT SPAM FOLLOWS!!! I DO NOT WANT SPAM FOLLOW ACCOUNTS!!! I DO NOT WANT IT!!!!! OR ELSE I'LL SPRAY BOTTLE YOU!!.
+# I DO NOT WANT SPAM FOLLOWS!!! I DO NOT WANT SPAM FOLLOW ACCOUNTS FOLLOWING ME!!! I DO NOT WANT IT!!!!! OR ELSE I'LL SPRAY BOTTLE YOU!!.
 
+(I don't like have a burning hatred towards following spam accounts, I just don't find the point of it at all. I dislike it because it's a personal preference and that people that ACTUALLY like me and know me follow me.)
 
    # DNI list ! READ BEFORE YOU FOLLOW/INT WITH ME.
 

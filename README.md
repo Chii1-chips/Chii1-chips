@@ -3,7 +3,7 @@
 # Extra link because no more space:
 
 
-https://en.pronouns.page/@Chii_chii
+# https://en.pronouns.page/@Chii_chii
 
 
 (( ! Thank you nova for showing me how to do these blinkies!!!!!!! shout out to him :) !!! >> https://github.com/novabunnii !

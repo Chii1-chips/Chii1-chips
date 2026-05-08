@@ -186,6 +186,9 @@ SHIPS I like!
 
 #### Quote as of April 26 2026: "I collect people like they're uno cards" - me
 
+#### Quote as of May 7th 2026 "its like finding nemo in wheres waldo when i try to find a specific friend" - me
+
+
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 
 # This is the end of this github page for NOW!! I may add stuff in the future, but for now? I need to take a break. 

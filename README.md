@@ -87,6 +87,8 @@ Unsure of how to use meow/meowself?
 
 # 2. Meow did it meowself! (he did it himself!)
 
+# 3. That is meow's book! (That is his book!)
+
 You may use my pronouns interchangebly, but my main is he/him!
 
 ## DO NOT EVER CALL ME SHE/HER pronouns. it makes me extremely uncomfortable. Its fine if you get mixed up when we first meet, but theres really no excuse if we've been friends for a awhile. I only ACCEPT these pronouns if im *ROLEPLAYING* as a character that has them. ONLY.

@@ -16,7 +16,7 @@
 
 (I don't like have a burning hatred towards following spam accounts, I just don't find the point of it at all. I dislike it because it's a personal preference and that people that ACTUALLY like me and know me follow me.)
 
-   # DNI list ! READ BEFORE YOU FOLLOW/INT WITH ME.
+   # DNI list ! READ BEFORE YOU FOLLOW OR INT WITH ME.
 
 # - proshippers/darkshippers/comshippers.
 # -  homophobics/transphobics... basically just people against lgbtq .

@@ -226,6 +226,7 @@ SHIPS I like!
 
 #### Quote as of May 7th 2026 "its like finding nemo in wheres waldo when i try to find a specific friend" - me
 
+### Quote as of May 29 2026 "i im duck core and orange cat core" - me
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/vine27.gif" width="1000">
 

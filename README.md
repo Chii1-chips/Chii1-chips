@@ -165,7 +165,7 @@ Another thing is that i can be a VERY clingy person, and i really don't know how
 
 - Do NOT copy/take inspo my skins whatsoever in pt. Doesn't matter. It doesn't matter if you're a friend of mine or not, do not copy them UNLESS i'm gifting you one. okay? ok! ^_^ .
 
-- Do not cuddle/kiss me randomly. Ask before so! Please and thank you. I get uncomfortable if someone does that randomly on me.
+## Do not cuddle/kiss me randomly. Ask before so! Please and thank you. I get uncomfortable if someone does that randomly on me.
 
 - You may ask to match pfps, ponies, etc etc with me freely if you are close friend of mine!
 

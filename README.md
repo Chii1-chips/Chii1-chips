@@ -1,5 +1,7 @@
 ╭──────────.★..─╮
 
+## Okay, so I don't know why I have to keep saying this because people just randomly do this and its NOT fun. DO NOT CUDDLE ME RANDOMLY. DO NOT KISS ME RANDOMLY. I don't mind if you boop me, thats completely okay. ASK before you try to kiss/cuddle me. Only my friends and those I trust are allowed to do those things freely with me.
+
       *　　　　　　　　　　　.
 
 ⠀⠀⠀⠀⠀.　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀⠀

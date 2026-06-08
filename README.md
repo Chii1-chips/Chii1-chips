@@ -61,6 +61,7 @@
 # - racists
 # - ex friends . I don't need to add more. We seperated for a reason.
 # - anything that is ai related/ai supporters.
+# - TFC (The freak circus) fans 
 
 
 # I will most likely block you *freely* if you make me uncomfortable OR if you're my dni list. !

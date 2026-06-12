@@ -4,7 +4,7 @@
 # OH!!!
 # It's a new github page! Between me and [Ayumi!](https://github.com/Cuddling-Encouraged-heavily-Dnc)
 # Go check it out! [SILLYSTUFF GITHUB PAGE](https://github.com/Chii1-chips/SILLYSTUFF) (it'll be updated randomly, as this is just for fun!) . . . 🐈‍⬛
-# Im also planning to make a github acc strictly on my petdreaming ! and also straw, ata, and pronouns page! :). stay tuned <3
+# If you see me pet dreaming, you'll see this github!! >> [my pet dreaming acc](https://github.com/petdreamerchiichii)
 
 
       *　　　　　　　　　　　.

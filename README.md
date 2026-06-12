@@ -1,7 +1,10 @@
 ╭──────────.★..─╮
 
-## Okay, so I don't know why I have to keep saying this because people just randomly do this and its NOT fun. DO NOT CUDDLE ME RANDOMLY. DO NOT KISS ME RANDOMLY. I don't mind if you boop me, thats completely okay. ASK before you try to kiss/cuddle me. Only my friends and those I trust are allowed to do those things freely with me.
-## I Also have to mention.. If you are a spam follow account, DO NOT FOLLOW ME. I only allow cuddling/hiding in me for strangers is only if i have "c+h enc" in my name!
+# 📭 📨  .. Huh. What's this? Mail? *Seriousl-*?
+# OH!!!
+# It's a new github page! Between me and Ayumi! (https://github.com/Cuddling-Encouraged-heavily-Dnc)
+# Go check it out! https://github.com/Chii1-chips/SILLYSTUFF (it'll be updated randomly, as this is just for fun!) . . . 🐈‍⬛
+
 
       *　　　　　　　　　　　.
 

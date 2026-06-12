@@ -2,8 +2,8 @@
 
 # 📭 📨  .. Huh. What's this? Mail? *Seriousl-*?
 # OH!!!
-# It's a new github page! Between me and Ayumi! (https://github.com/Cuddling-Encouraged-heavily-Dnc)
-# Go check it out! https://github.com/Chii1-chips/SILLYSTUFF (it'll be updated randomly, as this is just for fun!) . . . 🐈‍⬛
+# It's a new github page! Between me and [Ayumi!](https://github.com/Cuddling-Encouraged-heavily-Dnc)
+# Go check it out! [SILLYSTUFF GITHUB PAGE](https://github.com/Chii1-chips/SILLYSTUFF) (it'll be updated randomly, as this is just for fun!) . . . 🐈‍⬛
 
 
       *　　　　　　　　　　　.
@@ -40,13 +40,8 @@
 
    # 𝙊𝙥𝙚𝙣𝙞𝙣𝙜 𝙩𝙝𝙚 𝙗𝙡𝙞𝙣𝙙𝙨..
 
-# Extra link because no more space:
-
-
-# https://en.pronouns.page/@Chii_chii
-
-
-(( ! Thank you nova for showing me how to do these blinkies!!!!!!! shout out to him :) !!! >> https://github.com/novabunnii !
+# Extra link because no more space: [pronouns page](https://en.pronouns.page/@Chii_chii)
+## (( ! Thank you nova for showing me how to do these blinkies!!!!!!! shout out to him :) !!! >> [nova's github page](https://github.com/novabunnii )!
 
 <p align="center"> <img src="https://adriansblinkiecollection.neocities.org/dividers/glitterstrawberries.gif" width="1000">
 

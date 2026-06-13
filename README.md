@@ -3,7 +3,7 @@
 # 📭 📨  .. Huh. What's this? Mail? *Seriousl-*?
 # OH!!!
 # It's a new github page! Between me and [Ayumi!](https://github.com/Cuddling-Encouraged-heavily-Dnc)
-# Go check it out! [SILLYSTUFF GITHUB PAGE](https://github.com/Chii1-chips/SILLYSTUFF) (it'll be updated randomly, as this is just for fun!) . . . 🐈‍⬛
+# Go check it out! [SILLYSTUFF GITHUB PAGE](https://github.com/Chii1-chips/SILLYSTUFF) ... Though.. Some things seem to be odd... Hm.. Have fun reading SILLYSTUFF regardless!
 # If you see me pet dreaming, you'll see this github!! >> [my pet dreaming acc](https://github.com/petdreamerchiichii)
 
 

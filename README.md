@@ -225,6 +225,7 @@ SHIPS I like!
 - 007n7 x spamton [ Forsaken ver. x Deltarune ] | ANOTHER crackship!
 - Debt Collector x Mafioso [ Frozen Soul ]
 - Lpurple {friend's oc} x hoax {springtrap} [rblx , BBN ] | ABATOHER NAOTHER crackship!!!. gulps
+- Teto (Mesmerizer) x Blaze (Sonic) | another.... crackship
 
 .. So.. You might not know what a crackship is- thats alright! A crackship is when you ship two characters even UNLIKELY to like each other, met briefly, or hell, could even be in a different fandom! It can be shorten up to, " I wanna ship it for the funnies... ' ^_^.
 

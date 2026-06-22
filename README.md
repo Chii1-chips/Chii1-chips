@@ -54,7 +54,7 @@
 
    # DNI list ! READ BEFORE YOU FOLLOW OR INT WITH ME.
 
-# - proshippers/darkshippers/comshippers.
+# - proshippers/darkshippers
 # -  homophobics/transphobics... basically just people against lgbtq .
 # - zoophiles
 # - racists

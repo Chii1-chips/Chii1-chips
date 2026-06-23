@@ -171,7 +171,7 @@ I can also say alot of the same words, such as "meow" "mrrp" or any cat emojis, 
 
 - Do NOT copy/take inspo my skins whatsoever in pt. Doesn't matter. It doesn't matter if you're a friend of mine or not, do not copy them UNLESS i'm gifting you one. okay? ok! ^_^ .
 
-## Do not cuddle/kiss me randomly. Ask before so! Please and thank you. I get uncomfortable if someone does that randomly on me.
+## Do not cuddle/kiss me randomly. Ask before so! Please and thank you. I get uncomfortable if someone does that randomly on me. However, the only times i allow strangers to cuddle me is when im in a cuddle pile/or if youre a friend of my friend!
 
 - You may ask to match pfps, ponies, etc etc with me freely if you are close friend of mine!
 

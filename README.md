@@ -41,6 +41,11 @@
 
    # 𝙊𝙥𝙚𝙣𝙞𝙣𝙜 𝙩𝙝𝙚 𝙗𝙡𝙞𝙣𝙙𝙨..
 
+   <img width="730" height="205" alt="Screenshot 2026-07-01 7 35 58 PM" src="https://github.com/user-attachments/assets/ed88da9e-1c41-4b88-a489-5aff339a6fd4" />
+
+   (THIS blinkie ^^^ was given to me by [Ayumi!](https://github.com/Cuddling-Encouraged-heavily-Dnc) tysm ily :D /platonic)
+
+
 # Extra link because no more space: [pronouns page](https://en.pronouns.page/@Chii_chii)
 ## (( ! Thank you nova for showing me how to do these blinkies!!!!!!! shout out to him :) !!! >> [nova's github page](https://github.com/novabunnii )!
 

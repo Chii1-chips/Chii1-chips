@@ -223,8 +223,6 @@ Extremely close friend - I share you my voice, *maybe my face*, my mental health
 
 SHIPS I like! 
 
-- Sprout x Boxten [ Dandy's World ]
-- Sprout x Rodger [ Dandy's World ]
 - Kris x Berdly [ Deltarune ]
 - Lemon cookie x big shot spamton [ CROB x Deltarune ] | A crackship!
 - 007n7 x spamton [ Forsaken ver. x Deltarune ] | ANOTHER crackship!

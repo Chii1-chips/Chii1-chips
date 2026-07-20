@@ -66,7 +66,7 @@
 # - ex friends . I don't need to add more. We seperated for a reason.
 # - anything that is ai related/ai supporters.
 # - TFC (The freak circus) fans 
-# - Verity fans . (this does not include friends, but please don't mention it around me. thx.)
+# - Verity fans . (please don't mention it around me. thx. I have nothing against Verity fans, it's just the themes surrounding it.)
 
 # I will most likely block you *freely* if you make me uncomfortable OR if you're my dni list. !
 

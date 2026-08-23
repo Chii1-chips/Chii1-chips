@@ -13,7 +13,7 @@ You recall him asking, "Do you want to know who I am?"
 <details>
   <summary>"Sure."</summary>
 
-  "Well then," He says, tilting his head left then right. "My name is **Chii Chii**. I used to be formerly called **Mitch** In my past ponytown era.
+  WIP
 
 
 </details>

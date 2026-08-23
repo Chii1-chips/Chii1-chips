@@ -13,12 +13,20 @@ You recall him asking, "Do you want to know who I am?"
 <details>
   <summary>"Sure."</summary>
 
-  He soon takes out his letter, and opens it, showing a piece of paper, that seemed to some sort of link?
+  He soon takes out his letter, and opens it, showing a piece of paper, that seemed to be some sort of address?
 
-"It's my socials," **Chii Chii** grins, his mouth reaching up to his nose, which is perpetually always doing that. "Atabook, Strawpage, *and* Pronouns page." He adds, his black basic shirt, and his gray shorts combining together in an odd, fashion sense. *It was cold, from what you remember that day, and it was raining! How could he be wearing such things?*
+
+[SILLY STUFF COLLABORATION ADDRESS](https://github.com/Chii1-chips/SILLYSTUFF)
+
+
+"Something special, *real special*," **Chii Chii** grins, his mouth widening into a glee of a smile, which is perpetually always doing that. "Somethin' between my friend and I," He adds, his black basic shirt, and his gray shorts combining together in an odd, fashion sense. *It was cold, from what you remember that day, and it was raining! How could he be wearing such things?*
+
+He shakes his head, a regular habit for him. "Now, below it, it's got my confidant's address page, if you wanna contact em' via their address... Eh, I mean *Atabook* or *Strawpage*." He hands it over to you, [AyUUmmi's adddrresSs](https://github.com/Cuddling-Encouraged-heavily-Dnc) showing on the bottom of the page, in rather messy handwriting... As if it was in a hurry for something. You still have the page on your desk, but it might've been gone by then. Oh well.
 
 
 </details>
+
+OR
 
 <details>
   <summary>"Uhm, no thanks."</summary>
@@ -31,7 +39,8 @@ You recall him asking, "Do you want to know who I am?"
 
 </details>
 
----
+## OR
+
 <details>
   <summary>"No, go away."</summary>
   
@@ -41,5 +50,5 @@ He sighs softly, shoulders slumping a bit.
 
 </details>
 
----
-Heavy WIP.
+
+*Heavy WIP.*

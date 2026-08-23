@@ -1,5 +1,5 @@
 
-You sit down at a nearby bench just right outside of a gas station, feeling rather exhausted, before you're suddenly facing a man, who's staring at you with those blue, flower like design on his glasses.
+You sat down at a nearby bench just right outside of a gas station, feeling rather exhausted... Before you're suddenly facing a man, who's staring at you with those *blue*, flower-like design on his glasses.
 
 He seems to have brown hair, or red? It looked so similar... Just couldn't put a finger on it. It had been so long since you last chatted with him.
 
@@ -13,7 +13,9 @@ You recall him asking, "Do you want to know who I am?"
 <details>
   <summary>"Sure."</summary>
 
-  WIP
+  He soon takes out his letter, and opens it, showing a piece of paper, that seemed to some sort of link?
+
+"It's my socials," **Chii Chii** grins, his mouth reaching up to his nose, which is perpetually always doing that. "Atabook, Strawpage, *and* Pronouns page." He adds, his black basic shirt, and his gray shorts combining together in an odd, fashion sense. *It was cold, from what you remember that day, and it was raining! How could he be wearing such things?*
 
 
 </details>

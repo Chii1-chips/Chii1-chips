@@ -1,7 +1,7 @@
 
-You sit down at a nearby chair, feeling rather exhausted, before you're suddenly facing a man.
+You sit down at a nearby bench just right outside of a gas station, feeling rather exhausted, before you're suddenly facing a man, who's staring at you with those blue, flower like design on his glasses.
 
-He seems to have brown hair, or red? It looked so similar, but your mind is hazy now.
+He seems to have brown hair, or red? It looked so similar... Just couldn't put a finger on it. It had been so long since you last chatted with him.
 
 You recall him asking, "Do you want to know who I am?"
 

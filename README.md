@@ -46,7 +46,12 @@ OR
   
 He sighs softly, shoulders slumping a bit.
 
-"That's reasonable. You can go on your way now, if you'd like I suppose," 
+"That's reasonable..." His voice trails off. "You can go on your way now, if you'd like I suppose," He shrugs, his mouth tilting in a frown, shaking his head left to right slowly.
+
+What a weird experience. 
+
+You suddenly feel sleepy, after all of that work or staring at a wall you had to do today.
+You stretched your body, and went home.
 
 </details>
 

@@ -1,4 +1,6 @@
 
+# FYI!: If you want to refer to my more formatted GITHUB to read information, here's the link!  [OLD GITHUB, still up to date of my stuff!!](https://github.com/Chii1-chips/OLD)
+
 You sat down at a nearby bench just right outside of a gas station, feeling rather exhausted... Before you're suddenly facing a man, who's staring at you with those *blue*, flower-like design on his glasses.
 
 He seems to have brown hair, or red? It looked so similar... Just couldn't put a finger on it. It had been so long since you last chatted with him.

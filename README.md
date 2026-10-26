@@ -1,5 +1,7 @@
+# hello. I'd like to say, for the meantime, I might be really dry/cold. I apologize sincerely if I am really rude or distant to anyone, I am not in the mental state to really talk. nor am I in the mood to comfort anyone. please respect and understand these.
 
-# FYI!: If you want to refer to my more formatted GITHUB to read information, here's the link!  [OLD GITHUB, still up to date of my stuff!!](https://github.com/Chii1-chips/OLD)
+
+ FYI!: If you want to refer to my more formatted GITHUB to read information, here's the link!  [OLD GITHUB, still up to date of my stuff!!](https://github.com/Chii1-chips/OLD)
 
 You sat down at a nearby bench just right outside of a gas station, feeling rather exhausted... Before you're suddenly facing a man, who's staring at you with those *blue*, flower-like design on his glasses.
 
